@@ -1,0 +1,1 @@
+We sat down as group and assigned the three tasks among ourselves in a group of two per task. Each group worked on their task and we all came together for review and corrections on the everyone's work before we submitted.
